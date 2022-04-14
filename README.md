@@ -1,0 +1,1 @@
+# Konica-Minolta-World-Wide-Remote-Service-Platform-WWRSPF-Review-Miercom-Certified-Secure
